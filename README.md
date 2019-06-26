@@ -1,4 +1,4 @@
-### Thor Odinson
+## Thor Odinson
 
 ![](https://en.wikipedia.org/wiki/Thor_(Ultimate_Marvel_character)#/media/File:Thor_(Ultimate_Marvel_character).jpg)
 
