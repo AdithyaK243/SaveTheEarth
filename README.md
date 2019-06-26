@@ -1,6 +1,6 @@
 ## Thor Odinson
 
-![](https://en.wikipedia.org/wiki/Thor_(Ultimate_Marvel_character)#/media/File:Thor_(Ultimate_Marvel_character).jpg)
+![thor](https://user-images.githubusercontent.com/51374035/60188551-1c86a280-984d-11e9-8735-e9cea304cc10.jpg)
 
 The son of Odin uses his mighty abilities as the God of Thunder to protect his home Asgard and planet Earth alike.He uses **Mjolnir**,in Norse mythology is the hammer of Norsegod associated with thunder which has enormous powers of it's own as well. The hammer is made from the heart of a dying star and whoever shall be worthy to lift the hammer will posses the power of Thor.
 
