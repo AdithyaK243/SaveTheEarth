@@ -12,5 +12,9 @@ Thor is a gifted combatant.His ancient skills and exprience in combat pair with 
 Although he is not recognised for his powers, he is the **Strongest Avenger**.As he was the only person who was able to bring the mad titan,**Thanos** on his knees with his powers and his axe **Stormbreaker**,while everyone else who stood against him were turned into dust.
 
 
+During the **Convergence**, which occurs every 5000 years where the walls between the 7 realms diminish ,when the dark elves tried to conquer the realms ,Thor defeated _Malekith_,the dark elves leader with the power of thunder and the almighty  _Mjolnir_. This all happened after the fight of **_Avengers_** in New York,after which Loki was imprisoned in the dungeons of **Asgard**. 
+
+
+
 
 ![thor2](https://user-images.githubusercontent.com/51374035/60189632-dd595100-984e-11e9-9f39-5f6cee5ccc08.gif)
